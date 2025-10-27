@@ -1,2 +1,5 @@
 # 25-569873-PA-24017-Muhammad-Kefin-Maulana-Ibrahim-MagangGMRT
 Penugasan Day 2
+
+NAMA: MUHAMMAD KEFIN MAULANA IBRAHIM
+NIM: 25/569873/PA/24017
